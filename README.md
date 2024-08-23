@@ -13,7 +13,7 @@
 * **Pós-graduação:** Analytics, Big Data e Intelligent Information
 * **Universidade:** Universidade Paulista
 
-**Me conheça comigo em:**
+**Me conheça nas redes:**
 
 **[LinkedIn](https://www.linkedin.com/in/felipepizetta/)** <br />
 **[Instagram](https://instagram.com/felipe.pizetta)** <br />
